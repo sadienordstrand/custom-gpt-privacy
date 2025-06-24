@@ -1,1 +1,1 @@
-Privacy privacy privacy
+Privacy policy placeholder 🕵
